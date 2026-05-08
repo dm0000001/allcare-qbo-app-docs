@@ -62,5 +62,5 @@ Access may be revoked at any time for users who no longer require the applicatio
 
 For questions about these Terms of Use, contact:
 
-## Allcare Nursing Services, Inc.
+**Allcare Nursing Services, Inc.**  
 Email: dm@allcarenursing.com
