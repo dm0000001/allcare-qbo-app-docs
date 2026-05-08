@@ -65,5 +65,5 @@ This Privacy Policy may be updated from time to time to reflect changes in the a
 
 For questions about this Privacy Policy or this internal application, contact:
 
-**Allcare Nursing Services, Inc.**
+**Allcare Nursing Services, Inc.**  
 Email: dm@allcarenursing.com
